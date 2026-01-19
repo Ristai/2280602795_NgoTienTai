@@ -1,1 +1,2 @@
-# 2280602795_NgoTienTai
+Họ và tên: Ngô Tiến Tài
+MSSV: 2280602795
